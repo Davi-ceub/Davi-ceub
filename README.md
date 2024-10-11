@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://docs.google.com/presentation/d/1QfuiJeuJ9f742OxoBYJmol7WVTjisMaGgHd8eLBEtKs/edit?usp=sharing](https://docs.google.com/presentation/d/1QfuiJeuJ9f742OxoBYJmol7WVTjisMaGgHd8eLBEtKs/edit?usp=sharing)
 
-- 📫 How to reach me **davi.lc@sempreceub.com**
+- 📫 How to reach me **davi.lc@sempreceub.com** linkedin.com/in/davi-lourenco-castilho-4958a1332
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/18KeVIUg9043Pcvlxm6bgOxeT922KrR-6pjWqo0hc-tk/edit?usp=sharing](https://docs.google.com/document/d/18KeVIUg9043Pcvlxm6bgOxeT922KrR-6pjWqo0hc-tk/edit?usp=sharing)
 
